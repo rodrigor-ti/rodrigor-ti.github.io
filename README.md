@@ -52,7 +52,7 @@ Estou aberto a novas oportunidades que permitam crescimento profissional e colab
 </div>
 
 
-##  Acesse meu Portfolio: 🎮: [Clique aqui!!!](https://rodrigor-ti.github.io/)
+##  Acesse meu Portfolio: [Clique aqui!!!](https://rodrigor-ti.github.io/)
   
 
 
